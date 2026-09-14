@@ -1,4 +1,4 @@
-# Hi, I'm Soni 👋
+# Hi, I'm Sonia 👋
 
 🎓 **B.Tech Student | Artificial Intelligence & Machine Learning**
 
